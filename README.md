@@ -6,4 +6,4 @@
 links  <img width="18" src="https://media.tenor.com/3sptHcQIw7oAAAAm/bubbles.webp">
 
 <p align="center">
-  <a href=https://everlasting-as-the-moon.straw.page>strawpage</a>       <a href=https://nazumi.atabook.org/>atabook</a>        <a href=https://namzspie1.sayout.net/>sayout</a>
+  <a href=https://everlasting-as-the-moon.straw.page>strawpage</a>       <a href=https://nazumi.atabook.org/>atabook</a>        
