@@ -9,7 +9,7 @@
 links  <img width="18" src="https://media.tenor.com/3sptHcQIw7oAAAAm/bubbles.webp">
 
 <p align="center">
-  <a href=https://everlasting-as-the-moon.straw.page>strawpage</a> <img width="18" src="https://cdn.discordapp.com/emojis/1163382079195709440.webp"> <a href=https://nazumi.atabook.org/>atabook</a> <img width="18" src="https://cdn.discordapp.com/emojis/1163382079195709440.webp"> <a href=https://rentry.co/nazum1>rentry</a>
+  <a href=https://everlasting-as-the-moon.straw.page>strawpage</a> <img width="18" src="https://cdn.discordapp.com/emojis/1163382079195709440.webp"> <a href=https://nazumi.atabook.org/>atabook</a> <img width="18" src="https://cdn.discordapp.com/emojis/1163382079195709440.webp"> <a href=https://rentry.co/nazumi1>rentry</a>
 
 
 <p align="center">
