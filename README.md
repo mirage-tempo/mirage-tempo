@@ -1,6 +1,7 @@
 
 ![](https://komarev.com/ghpvc/?username=mirage-tempo&color=ffc87c&label=𝜗ৎ)
-
+<p align="center">
+best view in light mode!
 <p align="center">
     <img width="900" src="https://i.pinimg.com/736x/0e/dc/65/0edc6526c6af61fd7379ef6dbea521e3.jpg">
 </p>
