@@ -2,7 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=mirage-tempo&color=ffc87c&label=𝜗ৎ)
 
 <p align="center">
-    <img width="700" src="https://litter.catbox.moe/6dwy7v74afsjm6is.png">
+    <img width="500" src="https://litter.catbox.moe/hl3557uwhbr6nbb8.png">
 </p>
 
 <p align="center">
@@ -14,6 +14,3 @@ links  <img width="18" src="https://media.tenor.com/3sptHcQIw7oAAAAm/bubbles.web
 
 <p align="center">
 <img width="20" src="https://cdn.discordapp.com/emojis/1120111807680487455.webp"> no DNI list 𝜗ৎ c+h is ok!! <img width="20" src="https://wilardo.crd.co/assets/images/gallery02/cf6b7263_original.gif?v=d0e71742">
-
-<p align="center">
-wip, im so done editing this shruytekdnekowjhvrvjfk
