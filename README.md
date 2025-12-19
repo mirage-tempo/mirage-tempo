@@ -2,7 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=mirage-tempo&color=ffc87c&label=𝜗ৎ)
 
 <p align="center">
-    <img width="500" src="https://litter.catbox.moe/8b85ajijw7ldb6fm.png"> </p>
+    <img width="500" src="https://litter.catbox.moe/4pf6v7lobbx2u287.png"> </p>
 
 <p align="center">
 links  <img width="18" src="https://media.tenor.com/3sptHcQIw7oAAAAm/bubbles.webp">
