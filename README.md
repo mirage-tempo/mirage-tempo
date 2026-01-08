@@ -15,4 +15,4 @@ links  <img width="18" src="https://wilardo.crd.co/assets/images/gallery23/05ef4
 
 <p align="center">
 hey wait feed my child..!
-<a href=https://tamanotchi.world/28952c>tamanotchi</a>
+<p align="center"> <a href=https://tamanotchi.world/28952c>tamanotchi</a>
