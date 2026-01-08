@@ -14,3 +14,5 @@ links  <img width="18" src="https://wilardo.crd.co/assets/images/gallery23/05ef4
 <img width="20" src="https://wilardo.crd.co/assets/images/gallery27/3aa50635_original.png?v=ca679d09"> no DNI list 𝜗ৎ c+h is ok!! <img width="20" src="https://wilardo.crd.co/assets/images/gallery27/127b2b1d_original.png?v=ca679d09">
 
 <p align="center">
+hey wait feed my child..!
+<a href=https://tamanotchi.world/28952c>tamanotchi</a>
