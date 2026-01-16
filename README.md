@@ -2,10 +2,9 @@
 ![](https://komarev.com/ghpvc/?username=mirage-tempo&color=ffc87c&label=𝜗ৎ)
 
 <p align="center">
-WIP AGAIN
 
 <p align="center">
-    <img width="900" src="https://i.pinimg.com/736x/73/ba/ce/73bace5f067e9be305d7d456e269a9b1.jpg"> </p>
+    <img width="900" src="https://i.pinimg.com/1200x/c5/93/cd/c593cdd4603f140c3c56315d8fe018a8.jpg"> </p>
 
 <p align="center">
 links  <img width="18" src="https://wilardo.crd.co/assets/images/gallery23/05ef472a_original.gif?v=ca679d09">
