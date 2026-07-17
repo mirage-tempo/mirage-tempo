@@ -20,4 +20,3 @@ hey wait feed my child..!
 <p align="center"> <a href=https://tamanotchi.world/28952c>tamanotchi</a>
 
 <p align="center">
-remaking straw ok whatever
