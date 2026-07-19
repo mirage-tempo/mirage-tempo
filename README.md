@@ -3,7 +3,7 @@
 
 
 <p align="center">
-$\color{red}{links}$</summary>
+$\color{orange}{links}$</summary>
 
 <p align="center">
   <a href=https://everlasting-as-the-moon.straw.page>strawpage</a> <img width="18" src="https://files.catbox.moe/5c3gso.gif"> <a href=https://nazumi.atabook.org/>atabook</a> 
